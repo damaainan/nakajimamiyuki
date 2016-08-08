@@ -1,0 +1,65 @@
+DIAMOND CAGE
+だいあもんどけーじ
+DIAMOND CAGE
+1992.11.12
+作詞  作曲  編曲 (Ver.)   唄
+中島みゆき   中島みゆき   瀬尾一三・浦田恵司 (1)
+中島みゆき
+□ LYRIC (a)●『10 WINGS』
+DIAMOND CAGE　臆病な笑みを
+DIAMOND CAGE　檻で囲え
+DIAMOND CAGE　臆病な笑みを
+DIAMOND CAGE　檻で囲え
+
+DIAMOND CAGE　臆病な笑みを
+DIAMOND CAGE　檻で囲え
+DIAMOND CAGE　臆病な笑みを
+DIAMOND CAGE　檻で囲え
+
+　「悲しい夢など何ひとつひとつ
+　　見ないで済むなら越したことはない
+　　悲しい話は何ひとつひとつ
+　　聞かずに済むなら越したことはない　越したことはない」
+
+DIAMOND CAGE　臆病な笑みを
+DIAMOND CAGE　檻で囲え
+DIAMOND CAGE　頑丈な檻の
+DIAMOND CAGE　中で笑え
+
+誰かがおまえに矢を射かけるかと
+怯えて怯えて夜も眠れない
+誰かがおまえに毒を盛るかもと
+怯えて怯えて水も飲めないね　そんなに恐ければ
+
+DIAMOND CAGE　ナイフより強い
+DIAMOND CAGE　檻で囲え
+DIAMOND CAGE　柔らかなヒヨコ
+DIAMOND CAGE　息もできず
+
+DIAMOND CAGE　ナイフより強い
+DIAMOND CAGE　檻で囲え
+DIAMOND CAGE　柔らかなヒヨコ
+DIAMOND CAGE　息もできず
+
+なのに何故WOMAN　愛し始めたら
+なのに何故WOMAN　恐いもの知らずなの
+なのに何故WOMAN　ダイヤの檻さえも
+なのに何故WOMAN　卵の殻みたいね
+
+DIAMOND CAGE　ナイフより強い
+DIAMOND CAGE　檻で囲え
+DIAMOND CAGE　臆病な笑みを
+DIAMOND CAGE　檻で囲え
+
+なのに何故WOMAN　愛し始めたら
+なのに何故WOMAN　恐いもの知らずなの
+なのに何故WOMAN　ダイヤの檻さえも
+なのに何故WOMAN　卵の殻みたいね
+
+DIAMOND CAGE　頑丈な檻の
+DIAMOND CAGE　中で笑え
+DIAMOND CAGE　柔らかなヒヨコ
+DIAMOND CAGE　息もできず
+DIAMOND CAGE
+DIAMOND CAGE
+DIAMOND CAGE
