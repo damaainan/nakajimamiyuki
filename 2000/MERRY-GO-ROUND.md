@@ -2,10 +2,13 @@ MERRY-GO-ROUND
 めりーごーらんど
 MERRY-GO-ROUND
 2000.11.15
+
+
 作詞  作曲  編曲 (Ver.)   唄
-中島みゆき   中島みゆき   瀬尾一三 (1)
-中島みゆき
+中島みゆき   中島みゆき   瀬尾一三 (1)  中島みゆき
 □ LYRIC (a)●『短篇集』
+
+
 MERRY-GO-ROUND, MERRY-GO-ROUND　後ろ姿と涙たち
 MERRY-GO-ROUND, MERRY-GO-ROUND　いついつまでも
 
