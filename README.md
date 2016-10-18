@@ -1,0 +1,3 @@
+# nakajimamiyuki
+nakajima miyuki的歌词中日对照版
+希望自己能在一年内完成对中岛美雪全部歌曲的假名注音和翻译。
