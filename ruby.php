@@ -7,7 +7,7 @@
 // <ruby><rb>  添加
 
 
-$arr = glob("./1981/*.md");
+$arr = glob("./1980/*.md");
 foreach($arr as $val){
 	// echo $val;
 	$aa = explode('.',$val);
